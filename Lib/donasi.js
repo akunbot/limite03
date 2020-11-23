@@ -14,12 +14,11 @@ TELAH MEMBUKA MENU DONASI
 
 KALIAN BISA DONASI MENGGUNAKAN
    
-🛡 *PULSA*: 081271699856
-🛡 *OVO*: 081271699856
-🛡 *DANA* : 081271699866
-🛡 *GOPAY* : 081271699856
+🛡 *PULSA*: 083164931691
+🛡 *DANA* : 083164931691
+🛡 *GOPAY* : 083164931691
 
-📺*IKLAN* *YOUTUBE REUZ*
+📺*IKLAN* *YOUTUBE LIMITE CISHE*
 
 
 ⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇
